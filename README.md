@@ -15,7 +15,7 @@ ___🦋(UNLACKY HACKER)🦋___
 (__🐝UNLACKY HACKER__)
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/rePDfDWO3XoAAAAd/hacking.gif">
 (__✏️UNLACKY HACKER✏️__)
-<h1 align="center">Hi 👋, I'm EHC EMRAN</h1>
+<h1 align="center">Hi 👋, I'm UNLACKY HACKER 
 <h3 align="center">A passionate Software Engineer from 𝑩𝑨𝑵𝑮𝑳𝑨𝑫𝑬𝑺 EHC EMRAN EHC EMRAN </h3>
 ___🦋(UNLACKY HACKER)🦋___
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/55389276/140866485-8fb1c876-9a8f-4d6a-98dc-08c4981eaf70.gif">
