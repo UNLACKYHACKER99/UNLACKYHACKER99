@@ -9,21 +9,21 @@
 </h3>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+EHC EMRAN+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+EHC EMRAN+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
-___🦋(EHC EMRAN)🦋___
-(__🐝EHC EMRAN🐝__)
+___🦋(UNLACKY HACKER)🦋___
+(__🐝UNLACKY HACKER🐝__)
 <img align="right" alt="Coding" width="400" src="https://raw.githubusercontent.com/devSouvik/devSouvik/master/gif3.gif">
-(__🐝EHC EMRAN🐝__)
+(__🐝UNLACKY HACKER__)
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/rePDfDWO3XoAAAAd/hacking.gif">
-(__✏️EHC EMRAN✏️__)
+(__✏️UNLACKY HACKER✏️__)
 <h1 align="center">Hi 👋, I'm EHC EMRAN</h1>
 <h3 align="center">A passionate Software Engineer from 𝑩𝑨𝑵𝑮𝑳𝑨𝑫𝑬𝑺 EHC EMRAN EHC EMRAN </h3>
-___🦋(EHC EMRAN)🦋___
+___🦋(UNLACKY HACKER)🦋___
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/55389276/140866485-8fb1c876-9a8f-4d6a-98dc-08c4981eaf70.gif">
-___🦋(EHC EMRAN)🦋___
+___🦋(UNLACKY HACKER)🦋___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=EHC EMRAN-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="EHC EMRAN-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/ehcehcemran0011223311cyber99/simplified_learner](https://t.me/ehcehcemran0011223311cyber99)
-___🦋(EHC EMRAN)🦋___
+- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/+m35a46DFOTVjYjhk]([https://t.me/ehcehcemran0011223311cyber99](https://t.me/+m35a46DFOTVjYjhk))
+___🦋(UNLACKY HACKER)🦋___
 - ⚡ Fun fact **I am funny😅**
 
 <h3 align="left">Connect with me:</h3>
